@@ -1,4 +1,4 @@
-### Hi there, I'm Qutboddin Ansari (KD) 👋
+### Hi there, I'm KD Ansari (KD) 👋
 I am a **Blogger** and Founder of **uptodate24x.com** and a Tech Enthusiast.
 I build free online tools to help Indian Students with Govt Exam Forms.
 
